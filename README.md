@@ -1,5 +1,5 @@
 # 💫 About Me:
-Meu nome é Isabely, tenho 16 anos e estudo na  Escola S de São José - SC<br>estou cursando o 2º ano do ensino médio com técnico em desenvolvimento de sistemas 
+Meu nome é Isabely, tenho 17 anos e estudo na  Escola S de São José - SC<br>estou cursando o 2º ano do ensino médio com técnico em desenvolvimento de sistemas 
 
 
 ## 🌐 Socials:
